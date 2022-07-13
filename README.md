@@ -80,6 +80,6 @@ This Bot Only Accept
 BTC ~ ETH ~ USDT 💸
 ```
 
-`Contact` Telegram: https://t.me/CyberDevilAdmin
+`Contact` Telegram: https://t.me/CyberDevilOTP
 
 
